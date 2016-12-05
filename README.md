@@ -1,4 +1,4 @@
-# Forework :
+# Foreword :
 
 First We would like to thank all the group organizing this event, in a general way the day was perfected in all levels especially IT management of the competitions as well as for the partition of groups and subjects..
 
